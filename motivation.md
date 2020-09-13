@@ -2,7 +2,7 @@ Dear Sir or Madam,
 
 I am writing to you since I am interested in a Ph.D. position in the area of the human dimension of the Earth system.
 
-I graduated from Moscow State University in 2007 with the Diploma of bachelor and in 2009 with a master's Diploma. `Master's thesis was "Changes of some applied cold season climate characteristics in Russia," and I presented it on ERCA 2012.`
+I graduated from Moscow State University in 2007 with the Diploma of bachelor and in 2009 with a master's Diploma. Master's thesis was "Changes of some applied cold season climate characteristics in Russia," and I presented it on ERCA-2012 (European Research Course of Athmospheres,9 January - 10 February 2012, Joseph-Fourier University, Grenoble, France).
 
 After graduation, I have been working for eleven years at the Institute of Geography, Russian Academy of Sciences. Three years ago, my family moved to Hamburg in connection with my husband's work. Currently, I continue to work remotely at the Institute of Geography on the project "The impact of climate change on the life activity of the population in Russia ("areas with special climatic conditions")." I assess Russian regions' transport accessibility and research the impact of warming and its consequences on the transport operation.
 
